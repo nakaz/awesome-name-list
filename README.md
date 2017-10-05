@@ -2,28 +2,39 @@
 
 Luke
 
-Nakaz loves Josh
+Nakaz
 
-tyler smaaassshhhh loves Josh
+tyler smaaassshhhh
 
-Raymond loves Josh
+Raymond
 
-Bruce Wayne loves Josh
+alexis not alexa
 
-mellanie loves Josh
+mellanie lkdsfjglkfdsj
 
-merrrooow_SEOLHEE! loves Josh
+merrrooow_SEOLHEE!
 
-Raymond loves Josh
+Bruce Wayne
 
-alexis not alexa "BRAH!!" loves Josh
+mellanie
 
-dory loves Josh
+merrrooow_SEOLHEE!
 
-jeff loves Josh
+Raymond
 
-Raymond loves Josh
+dory
 
-Brandon loves Josh
+alexis not alexa "BRAH!!"
+
+dory
+
+jeff
+
+Raymond
+
+Brandon
+
+scott
+
 
 
