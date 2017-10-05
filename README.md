@@ -4,4 +4,21 @@ Nakaz
 
 tyler smaaassshhhh
 
+
+
+
+
 Raymond
+
+
+
+
+
+
+
+
+
+
+
+
+Joshi is a person
