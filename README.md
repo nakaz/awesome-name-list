@@ -4,7 +4,6 @@ Nakaz
 
 tyler smaaassshhhh
 
-
 alexis not alexa
 
 jeff
