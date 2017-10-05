@@ -1,22 +1,26 @@
 # Our Awesome Name List
 
-Nakaz
+Nakaz loves Josh
 
-tyler smaaassshhhh
+tyler smaaassshhhh loves Josh
 
+Raymond loves Josh
 
-mellanie lkdsfjglkfdsj
+Bruce Wayne loves Josh
 
-merrrooow_SEOLHEE!
+mellanie loves Josh
 
-Raymond
+merrrooow_SEOLHEE! loves Josh
 
-alexis not alexa "BRAH!!"
+Raymond loves Josh
 
-dory
+alexis not alexa "BRAH!!" loves Josh
 
-jeff
+dory loves Josh
 
-Raymond
+jeff loves Josh
 
-Brandon
+Raymond loves Josh
+
+Brandon loves Josh
+
