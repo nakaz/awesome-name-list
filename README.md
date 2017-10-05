@@ -5,4 +5,20 @@ Nakaz
 tyler smaaassshhhh
 
 
-Joshi
+
+
+=======
+Raymond
+>>>>>>> name-list-master
+
+
+
+
+
+
+
+
+
+
+
+Joshi is a person
