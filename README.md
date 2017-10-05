@@ -4,8 +4,10 @@ Nakaz
 
 tyler smaaassshhhh
 
-<<<<<<< HEAD
+
 alexis not alexa
-=======
+
+jeff
+
 Raymond
->>>>>>> name-list-master
+
